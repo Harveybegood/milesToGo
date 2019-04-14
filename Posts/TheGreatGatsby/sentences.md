@@ -1,0 +1,2 @@
+- Question: "Don't ask me," said Owl Eyes, washing his hands of the whole matter. "I know very little about driving - next to nothing. It happened, and that's all I know."
+- Answer: I didn't really catch the meaning of the "washing his hand of the whole matter." at the first sight. it means in chinese "把事情推脱的一干二净". 
