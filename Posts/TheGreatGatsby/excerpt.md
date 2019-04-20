@@ -1,7 +1,13 @@
-- I began to like New York, the racy, adventurous feel of it at night and the satisfication that the constant flicker of men and women and machines gives to the restless eye.  
+- I began to like New York, the racy, adventurous feel of it at night and __the satisfication that__ the constant flicker of men and women and machines gives to the restless eye.  
 
-- From East Egg, then, came the Chester Beckers and the Leeches, and a man named Bunson, whom I knew at Yale, and Doctor Webster Civet, who  was drowned last summer up in Maine.  
+- From East Egg, then, __came__ the Chester Beckers and the Leeches, and a man named Bunson, whom I knew at Yale, and Doctor Webster Civet, who  was drowned last summer up in Maine.  
 
-- They will give you a better impression than my generalities of those who accepted Gatsby's hospitality and paid him the subtle tribute of knowing nothing whatever about him.  
+- They will give you a better impression than my __generalities__ of those who accepted Gatsby's hospitality and paid him the subtle tribute of knowing nothing whatever about him.  
 
-- So my first impression, that he was a person of undefined consequence, had gradually faded and he had become simply the proprietor of an elaborate road house next door.
+- So my first impression, that he was a person of undefined consequence, had gradually faded and he had become simply __the proprietor of an elaborate road house__ next door.  
+
+- His right hand suddenly __ordered divine retribution to stand by__.  
+
+- And with this doubt, his whole statment fell to pieces, and I wondered if __there wasn't something a little sinister__ about him, after all.  
+
+- The very phrase were __worn__ so __threadbare__ that they __evoked__ no image except that of a turbaned "character." leaking sawdust at every pore as he pursued a tiger through the Bois de Boulogne.
