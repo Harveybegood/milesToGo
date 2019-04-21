@@ -10,4 +10,6 @@
 
 - And with this doubt, his whole statment fell to pieces, and I wondered if __there wasn't something a little sinister__ about him, after all.  
 
-- The very phrase were __worn__ so __threadbare__ that they __evoked__ no image except that of a turbaned "character." leaking sawdust at every pore as he pursued a tiger through the Bois de Boulogne.
+- The very phrase were __worn__ so __threadbare__ that they __evoked__ no image except that of a turbaned "character." leaking sawdust at every pore as he pursued a tiger through the Bois de Boulogne.  
+
+- I tried very hard to die, but I seemed to __bear an enchanted life__.
