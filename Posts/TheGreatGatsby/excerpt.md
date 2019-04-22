@@ -12,4 +12,12 @@
 
 - The very phrase were __worn__ so __threadbare__ that they __evoked__ no image except that of a turbaned "character." leaking sawdust at every pore as he pursued a tiger through the Bois de Boulogne.  
 
-- I tried very hard to die, but I seemed to __bear an enchanted life__.
+- I tried very hard to die, but I seemed to __bear an enchanted life__.  
+
+- His __correctness__ grew on him.  
+
+- __tipping__ his cap.  
+
+- Over the great bridge, with the sunlight through the girders making a constant flicker upon the moving cars, with the city rising up across the river in white heaps and sugar lumps all built __with a wish__ out of non-olfactory money.  
+
+- The city __seen__ from the Queensboro Bridges is always the city __seen__ for the first time, in its __first wild promise__ of all the mystery and the beauty in the world.
