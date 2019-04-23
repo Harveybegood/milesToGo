@@ -26,4 +26,8 @@
 
 - A small, __flat-nosed__ Jew raised his large head and regarded me with two fine growths of hair which __luxuriated__ in either nostril. After a moment I discovered his tiny eyes in the __halfdarkness__.  
 
-- Gatsby took an arm of each of us and moved forward into the restaurant, __whereupon__ Mr.Wolfsheim swallowed a new sentence he was starting and lapsed into a __somnamlabutory abstraction__.
+- Gatsby took an arm of each of us and moved forward into the restaurant, __whereupon__ Mr.Wolfsheim swallowed a new sentence he was starting and lapsed into a __somnamlabutory abstraction__.  
+
+- __Filled__ with faces dead and gone. Filled with friends gone now forever.  
+
+- "It was four o'clock in the morning then, and if we'd __of__ raised the blinds we'd of seen daylight" of == have. we would have raised 
