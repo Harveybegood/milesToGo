@@ -20,4 +20,10 @@
 
 - Over the great bridge, with the sunlight through the girders making a constant flicker upon the moving cars, with the city rising up across the river in white heaps and sugar lumps all built __with a wish__ out of non-olfactory money.  
 
-- The city __seen__ from the Queensboro Bridges is always the city __seen__ for the first time, in its __first wild promise__ of all the mystery and the beauty in the world.
+- The city __seen__ from the Queensboro Bridges is always the city __seen__ for the first time, in its __first wild promise__ of all the mystery and the beauty in the world.  
+
+- In a __well-fanned__ Forty-second Street cellar I met Gatsby for lunch. __Blinking__ away the brightness of the street outside, my eyes __picked him out obscurely__ in the anteroom, talking to another man.  
+
+- A small, __flat-nosed__ Jew raised his large head and regarded me with two fine growths of hair which __luxuriated__ in either nostril. After a moment I discovered his tiny eyes in the __halfdarkness__.  
+
+- Gatsby took an arm of each of us and moved forward into the restaurant, __whereupon__ Mr.Wolfsheim swallowed a new sentence he was starting and lapsed into a __somnamlabutory abstraction__.
