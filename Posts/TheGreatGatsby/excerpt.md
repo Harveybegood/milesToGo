@@ -30,4 +30,12 @@
 
 - __Filled__ with faces dead and gone. Filled with friends gone now forever.  
 
-- "It was four o'clock in the morning then, and if we'd __of__ raised the blinds we'd of seen daylight" of == have. we would have raised 
+- "It was four o'clock in the morning then, and if we'd __of__ raised the blinds we'd of seen daylight" of == have. we would have raised  
+- He's quite a character around New York - a __denizen__ of Broadway.  
+
+- It never __occurred to me__ that one man could start to play with the faith of fifty million people--with the __single-mindedness__ of burglar __blowing a safe__.  
+
+- They shook hands briefly, and a __strained__, unfamiliar look of embarrassment came over Gatsby's face. 
+
+- "How've you been, anyhow?" __demanded Tom of me__. "How'd you happen to come up this far to eat?"
+
