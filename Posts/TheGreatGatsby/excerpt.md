@@ -37,5 +37,15 @@
 
 - They shook hands briefly, and a __strained__, unfamiliar look of embarrassment came over Gatsby's face. 
 
-- "How've you been, anyhow?" __demanded Tom of me__. "How'd you happen to come up this far to eat?"
+- "How've you been, anyhow?" __demanded Tom of me__. "How'd you happen to come up this far to eat?"  
+
+- We gave her __spirits of ammonia__ and put ice on her forehead and __hooked her back into__ her dress.  
+
+- Next day at five o'clock she married Tom Buchanan without __so much as__ a shiver, and __started off__ on a three months' trip to the South seas.  
+
+- I thought I'd never seen a girl so __mad about(on)__ her husband.  
+
+- You can hold your tongue, and, moreover, you can time any little irregularity of your own so that everybody else is so blink that they don't see or care. Perhaps Daisy never __went in for__ amour at all - and yet there's something in that voice of hers...  
+
+- wear the most abstracted expression until she saw him coming back in the door.
 
