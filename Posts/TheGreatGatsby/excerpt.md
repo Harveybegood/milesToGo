@@ -47,5 +47,5 @@
 
 - You can hold your tongue, and, moreover, you can time any little irregularity of your own so that everybody else is so blink that they don't see or care. Perhaps Daisy never __went in for__ amour at all - and yet there's something in that voice of hers...  
 
-- wear the most abstracted expression until she saw him coming back in the door.
+- wear the most __abstracted expression__ until she saw him coming back in the door.
 
