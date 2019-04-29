@@ -61,4 +61,16 @@
 
 - "And Daisy ought to have something in her life," murmured Jordan to me.  
 
-- I had no girl whose __disembodied__ face floated along the dark cornices and blinding signs, 
+- I had no girl whose __disembodied__ face floated along the dark cornices and blinding signs,  
+
+- At first I thought it was another party, a __wild rout__ that had __resolved itself into__ "hide-and-go-seek" or "sardines-in-the-box" with all the house thrown open to the game.  
+
+- He __fumbled__ with a series of beginnings.  
+
+- But, because the offer was obviously and tactlessly for __a service to be rendered__, I had no choice except to __cut him off__ there.  
+- "I've got my __hands full__", I said. "I'm much obliged but I couldn't take on any more work."  
+
+- Evidently he thought that I was __shying away from__ the "gonnegtion" mentioned at lunch, but  
+
+- He waited a moment longer, hoping I'd being a conversation, but I was __too absorbed to be responsive__, so he went unwillingly home.  
+- The evening had made me __light-headed__ and happy;
