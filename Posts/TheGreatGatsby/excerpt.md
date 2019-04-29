@@ -47,5 +47,18 @@
 
 - You can hold your tongue, and, moreover, you can time any little irregularity of your own so that everybody else is so blink that they don't see or care. Perhaps Daisy never __went in for__ amour at all - and yet there's something in that voice of hers...  
 
-- wear the most __abstracted expression__ until she saw him coming back in the door.
+- wear the most __abstracted expression__ until she saw him coming back in the door.  
 
+- It was the night he sent for me at his dance, and you should have heard __the elaborate way__ he __work up to__ it.  
+
+- though he says he's read a Chicago paper for years just __on the change of__ catching a glimpse of Daisy's name.
+
+- he's a regular tough __underneath it all__.  
+
+- Suddenly I wasn't thinking of Daisy and Gatsby any more, but of this clean, hard, and limited person, who __dealt in universal scepticism__,  
+
+- There are only the pursued, the pursuing, the busy and the tired.  
+
+- "And Daisy ought to have something in her life," murmured Jordan to me.  
+
+- I had no girl whose __disembodied__ face floated along the dark cornices and blinding signs, 
