@@ -73,4 +73,12 @@
 - Evidently he thought that I was __shying away from__ the "gonnegtion" mentioned at lunch, but  
 
 - He waited a moment longer, hoping I'd being a conversation, but I was __too absorbed to be responsive__, so he went unwillingly home.  
-- The evening had made me __light-headed__ and happy;
+- The evening had made me __light-headed__ and happy;  
+
+- Gatsby, his hands still in his pocket, was reclining against the mantelpiece __in a strained counterfeit of__ perfect case, even of boredom.  
+
+- His eyes glanced momentarily at me, and his lips __parted__ with an __abortive attempt__ at a laugh.  
+
+- I couldn't __muster up__ a single commonplace out of the thousand in my head.  
+
+- The __automatic quality__ of Gatsby's answer __set us all back__ at least another minute.
