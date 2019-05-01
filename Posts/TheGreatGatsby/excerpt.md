@@ -81,4 +81,14 @@
 
 - I couldn't __muster up__ a single commonplace out of the thousand in my head.  
 
-- The __automatic quality__ of Gatsby's answer __set us all back__ at least another minute.
+- The __automatic quality__ of Gatsby's answer __set us all back__ at least another minute.  
+
+- A brewer had built it early in the "period" craze,  
+
+- Perhaps their refusal took the heart out of his plan to __Found a Family__  
+
+- __Americans, while willing, even eager, to be serfs, have always been obstinate about being peasantry.__  
+
+- While the rain continued it had seemed like the murmur of their voices, rising and swelling a little now and then with __gusts of emotion__.  
+
+- __short of__ pushing over the stove
