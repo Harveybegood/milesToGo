@@ -91,4 +91,22 @@
 
 - While the rain continued it had seemed like the murmur of their voices, rising and swelling a little now and then with __gusts of emotion__.  
 
-- __short of__ pushing over the stove
+- __short of__ pushing over the stove  
+
+- through __period__ bedrooms swathed in rose and lavender silk and vivid with new flowers,  
+
+- He hadn't once __cease looking__ at Daisy, and I think he revalued everything in his house according to the measure of response it drew from her well-loved eyes.  
+
+- except where the dresser was garnished with a __toilet set of__ pure dull gold.  
+
+- Whereupon Gatsby sat down and __shaded__ his eyes and began to laugh.  
+
+- After his embarrassment and his unreasoning joy he was __consumed with__ wonder at her presence.  
+
+- He had been full of the idea so long, dreamed it right through to the end, __waited with his teeth set__, so to speak, at an __inconceivable__ pitch of intensity.
+
+- Now, in the reaction, he was running down like an __overwound__ clock.  
+
+- He seemd absorbed in what he had just said.  
+
+- Possibly it had occurred to him that the colossal significance of that light had now vanished forever. Compared to the great distance that had separated him from Daisy it had seemed very near to her, almost touching her.
