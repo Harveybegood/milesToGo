@@ -109,4 +109,16 @@
 
 - He seemd absorbed in what he had just said.  
 
-- Possibly it had occurred to him that the colossal significance of that light had now vanished forever. Compared to the great distance that had separated him from Daisy it had seemed very near to her, almost touching her.
+- Possibly it had occurred to him that the colossal significance of that light had now vanished forever. Compared to the great distance that had separated him from Daisy it had seemed very near to her, almost touching her.  
+
+- In the music-room Gatsby turned on a solitary lamp beside the piano. He lit Daisy's cigarette from a trembling match, and sat down with her on a couch far across the room, where there was no light __save__ what the gleaming floor bounced in the hall.  
+
+- "One thing's sure and nothing's surer" The rich get richer and the poor get--children. In the meantime, In between time--"  
+
+- as though a faint doubt had occurred to him __as to__ the quality of his present happiness.  
+
+- He had __thrown himself into__ it with a creative passion, adding to it all the time, __decking it out__ with every bright feather that drifted his way.  
+
+- __No amount of__ fire or freshness can challenge what a man can store up in his ghostly heart.  
+
+- I think that voice __held him most__, with its fluctuating, feverish warmth, because it couldn't be over-dreamed - that voice was a deathless song.
