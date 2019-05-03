@@ -121,4 +121,12 @@
 
 - __No amount of__ fire or freshness can challenge what a man can store up in his ghostly heart.  
 
-- I think that voice __held him most__, with its fluctuating, feverish warmth, because it couldn't be over-dreamed - that voice was a deathless song.
+- I think that voice __held him most__, with its fluctuating, feverish warmth, because it couldn't be over-dreamed - that voice was a deathless song.  
+
+- This was his off day and __with laudable initiative__ he had hurried out "to see".  
+
+- It was __a random shot__.  
+
+- Gatsby's notoriety, spread about by the hundreds who had accepted his hospitality and so become authorities upon his past, had increased all summer until he __fell just short of__ being news.  
+
+- Just why these inventions were a source of satisfication to James Gatz of North Dakota isn't easy to say.
