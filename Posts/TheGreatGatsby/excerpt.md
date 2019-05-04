@@ -129,4 +129,16 @@
 
 - Gatsby's notoriety, spread about by the hundreds who had accepted his hospitality and so become authorities upon his past, had increased all summer until he __fell just short of__ being news.  
 
-- Just why these inventions were a source of satisfication to James Gatz of North Dakota isn't easy to say.
+- Just why these inventions were a source of satisfication to James Gatz of North Dakota isn't easy to say.  
+
+- He was a son of God--a phrase which, if it means anything, means just that-- and he must be about His Father's business, the service of a vast, vulgar, and meretricious beauty.  
+
+- His brown, hardening body lived natrually through the half-fierce, half-lazy work of the bracing days.  
+
+- He knew women early, and since they spoiled him he became contemptuous of them, of young virgins because they are ignorant, of the others because they were hysterical about things which __in his overwhelming self-absorption__ he took for granted.  
+
+- A universe __ineffable gaudiness__ spun itself out in his brain while the clock ticked on the wash-stand and the moon __soaked__ with wet light his tangled cloths upon the floor.  
+
+- Each night he added to the pattern of his fancies until drowsies closed down upon some vivid scene __with an oblivious embrance__.  
+
+- They were a satisfactory hint of the unreality of reality, a promise that __the rock of the world__ was founded securely on a fairy's wing.
