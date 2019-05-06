@@ -141,4 +141,15 @@
 
 - Each night he added to the pattern of his fancies until drowsies closed down upon some vivid scene __with an oblivious embrance__.  
 
-- They were a satisfactory hint of the unreality of reality, a promise that __the rock of the world__ was founded securely on a fairy's wing.
+- They were a satisfactory hint of the unreality of reality, a promise that __the rock of the world__ was founded securely on a fairy's wing.  
+
+- He stayed there two weeks, __dismayed at__ its ferocious indifference to the drums of his destiny, to destiny itself, and despising the janitor's work __with which__ he was to pay his way through.  
+
+- The transactions in Montana copper that made him __many times a__ millionaire found him physically rebust but __on the verge of soft-mindedness__,  
+
+- The none too savoury remification __by which__ Elle Kaye, the newspaper woman, played Madame de Maintenon to his weakness and sent him to sea in a yacht, were common property of the turgid journalism of 1902.  
+
+- He had been coasting along all too hospitable shores for five years when he __turned up as__ James Gatz's destiny in Little Girl Bay.  
+- __At any rate__ Cody asked him a few questions(one of them __elicited__ the brand new name) and found that he was quick and extravagantly ambitious. 
+
+- He was employed in a vague __personal capacity__ - while he remained with Cody he was in turn steward, mate, skipper, secretary, and even jailor, for Dan Cody sober knew what lavish doings Dan Cody drunk might soon be about, and he __provided for__ such contingencies by __reposing more and more trust__ in Gatsby.
