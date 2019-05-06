@@ -152,4 +152,7 @@
 - He had been coasting along all too hospitable shores for five years when he __turned up as__ James Gatz's destiny in Little Girl Bay.  
 - __At any rate__ Cody asked him a few questions(one of them __elicited__ the brand new name) and found that he was quick and extravagantly ambitious. 
 
-- He was employed in a vague __personal capacity__ - while he remained with Cody he was in turn steward, mate, skipper, secretary, and even jailor, for Dan Cody sober knew what lavish doings Dan Cody drunk might soon be about, and he __provided for__ such contingencies by __reposing more and more trust__ in Gatsby.
+- He was employed in a vague __personal capacity__ - while he remained with Cody he was in turn steward, mate, skipper, secretary, and even jailor, for Dan Cody sober knew what lavish doings Dan Cody drunk might soon be about, and he __provided for__ such contingencies by __reposing more and more trust__ in Gatsby.  
+
+- He was left with his singularly appropriate education; the vague __contour__ of Jay Gatsby had filled out to the __substantialty__ of a man.  
+
