@@ -156,3 +156,7 @@
 
 - He was left with his singularly appropriate education; the vague __contour__ of Jay Gatsby had filled out to the __substantialty__ of a man.  
 
+- but I've __put it down__ here with the idea of exploding those first wild rumors about his __antecedents__, which weren't even faintly ture.  
+
+- Moreover He told it to me at a time of confusion, when I had reached __the point of believing everything and nothing__ about him.
+
