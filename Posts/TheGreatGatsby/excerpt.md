@@ -28,6 +28,8 @@
 
 - Gatsby took an arm of each of us and moved forward into the restaurant, __whereupon__ Mr.Wolfsheim swallowed a new sentence he was starting and lapsed into a __somnamlabutory abstraction__.  
 
+- But he would be uneasy anyhow until he had given them something, realising in a vague way that that was all they came for.
+
 - __Filled__ with faces dead and gone. Filled with friends gone now forever.  
 
 - "It was four o'clock in the morning then, and if we'd __of__ raised the blinds we'd of seen daylight" of == have. we would have raised  
