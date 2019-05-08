@@ -160,5 +160,14 @@
 
 - but I've __put it down__ here with the idea of exploding those first wild rumors about his __antecedents__, which weren't even faintly ture.  
 
+- the rest of us __exchanged a cool nod__.  
+
+- Perhaps his presence gave the evening its peculiar quality of oppressiveness - it __stands out in my memory__ from Gatsby's other parties that summer.  
+
+- __second to nothing__ because it had no consciousness of __being so__,  
+
+- It is __invariably__ saddening to look through new eyes at __things upon which__ you have extended your own __powers of adjustment__.  
+- 
+
 - Moreover He told it to me at a time of confusion, when I had reached __the point of believing everything and nothing__ about him.
 
