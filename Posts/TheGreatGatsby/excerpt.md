@@ -166,8 +166,7 @@
 
 - __second to nothing__ because it had no consciousness of __being so__,  
 
-- It is __invariably__ saddening to look through new eyes at __things upon which__ you have extended your own __powers of adjustment__.  
-- 
+- It is __invariably__ saddening to look through new eyes at __things upon which__ you have extended your own __powers of adjustment__. 
 
 - Moreover He told it to me at a time of confusion, when I had reached __the point of believing everything and nothing__ about him.
 
