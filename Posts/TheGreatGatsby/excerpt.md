@@ -168,5 +168,9 @@
 
 - It is __invariably__ saddening to look through new eyes at __things upon which__ you have extended your own __powers of adjustment__. 
 
-- Moreover He told it to me at a time of confusion, when I had reached __the point of believing everything and nothing__ about him.
+- Moreover He told it to me at a time of confusion, when I had reached __the point of believing everything and nothing__ about him.  
+
+- "These things excite me so," she whispered.  
+
+- Gatsby indicated a gorgeous, scarcely __human orchid of a woman__ who __sat in state__ under a white plum tree. 
 
