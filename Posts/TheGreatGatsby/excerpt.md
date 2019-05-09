@@ -172,5 +172,15 @@
 
 - "These things excite me so," she whispered.  
 
-- Gatsby indicated a gorgeous, scarcely __human orchid of a woman__ who __sat in state__ under a white plum tree. 
+- Gatsby indicated a gorgeous, scarcely __human orchid of a woman__ who __sat in state__ under a white plum tree.  
+
+- A massive and lethargic woman, who had been urging Daisy to play golf with her at the local club tomorrow, spoke __in Miss baedeker's defense__.  
+
+- "__She's much obliged__, I'm sure," said another friend, without gratitude.  
+
+- They were still under the white plum tree and their faces were touching except for a pale, __thin ray of moonlight__ between.  
+
+- It occurred to me that he had been very slowly bending toward her all evening to __attain this proximity__, and even while I watched I saw him stoop one __ultimate degree__ and kiss at her cheek.  
+
+- She was appalled by West Egg, this unprecedented "place" that Broadway had begotten upon a long island fish village - appalled by its raw vigour that chafed under the old euphemisms and by the too obtrusive fate that herded its inhabitants along a short-cut __from nothing to nothing__.
 
