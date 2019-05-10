@@ -182,5 +182,17 @@
 
 - It occurred to me that he had been very slowly bending toward her all evening to __attain this proximity__, and even while I watched I saw him stoop one __ultimate degree__ and kiss at her cheek.  
 
-- She was appalled by West Egg, this unprecedented "place" that Broadway had begotten upon a long island fish village - appalled by its raw vigour that chafed under the old euphemisms and by the too obtrusive fate that herded its inhabitants along a short-cut __from nothing to nothing__.
+- She was appalled by West Egg, this unprecedented "place" that Broadway had begotten upon a long island fish village - appalled by its raw vigour that chafed under the old euphemisms and by the too obtrusive fate that herded its inhabitants along a short-cut __from nothing to nothing__.  
+
+- Sometimes a shadow moved against a dressing-room blind above, gave way to another shadow, an indefinite procession of shadows, who rouged and powdered in an invisible glass.  
+
+- He certainly must have __strained himself to__ get this manegerie together.
+
+- "At least they're more interesting than the people we know," she said __with an effort__.  
+
+- Her glance __left__ me and __sought__ the lighted top of the steps, where _Three O'clock in the morning_, a neat, sad little Waltz of that year, was __drifting out__ the open door.  
+
+- After all, in the very casualness of Gatsby's party there were romantic possibilites totally __absent from her world__. What was it up there in the song that seemed to be calling her back inside?  
+
+- Perhaps some unbelievable guest would arrive, a person infinitely rare and to be marvelled at, some authentically radiant young girl who with one fresh glance at Gatsby, __one moment of magical encounter__, would __blot out__ those five years of __unwavering devotion__.  
 
