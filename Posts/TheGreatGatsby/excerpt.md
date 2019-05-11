@@ -196,3 +196,6 @@
 
 - Perhaps some unbelievable guest would arrive, a person infinitely rare and to be marvelled at, some authentically radiant young girl who with one fresh glance at Gatsby, __one moment of magical encounter__, would __blot out__ those five years of __unwavering devotion__.  
 
+- He wanted __nothing less of Daisy than__ that she should go to Tom and say: "I never loved you."  
+
+- Now it was a cool night with that mysterious excitement in it which comes at the __two changes of the year__.  
