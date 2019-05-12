@@ -199,3 +199,19 @@
 - He wanted __nothing less of Daisy than__ that she should go to Tom and say: "I never loved you."  
 
 - Now it was a cool night with that mysterious excitement in it which comes at the __two changes of the year__.  
+
+- Out of the corner of his eyes Gatsby saw that __the blocks of the sidewalks__ really formed a ladder and mounted to a secret place above the trees - he could climb to it, if he climbed along, and once there he could suck on the __pap of life__, __gulp down the imcomparable milk of wonder__.  
+
+- He knew that when he kissed this girl, and forever __wed his unutterable visions to__ her __perishable breath__, his mind would never romp again like __the mind of God__.  
+
+- For a moment a phrase tried to __take shape in my mouth__ and my lips parted like a dumb man's, as though there was more struggling upon them than __a wisp of__ startled air.  
+
+- It was when curiosity about Gatsby was at its highest that the lights in his house failed to go on one Saturday night - and, __as obscurely as__ it had begun, his career as Trimalchio was over.  
+
+- __Only gradually did__ I become aware that the automobiles turned expectantly into his drive stayed for just a minute and then drove sulkily away.  
+
+- My Finn informed me that Gatsby had dismissed every servant in his housr a week ago and replaced them with half a dozen others, who never went into West Egg Village __to be bribed__ by the tradesmen, but ordered __moderate supplies__ over the telephone.  
+
+- So the whole caravansary had fallen in like a card house __at the disapproval__ in her eyes.  
+
+- He was calling up __at Daisy's request__ - would i come to lunch at her house tomorrow?
