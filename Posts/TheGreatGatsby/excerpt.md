@@ -214,4 +214,10 @@
 
 - So the whole caravansary had fallen in like a card house __at the disapproval__ in her eyes.  
 
-- He was calling up __at Daisy's request__ - would i come to lunch at her house tomorrow?
+- He was calling up __at Daisy's request__ - would i come to lunch at her house tomorrow?  
+
+- And yet I couldn't believe that they would choose this occasion for a scene - especially for the rather __harrowing scene__ that Gatsby had outlined in the garden.  
+
+- holding it __at arm's length__ and __by the extreme tip of the corners__ to indicate that I had no designs upon it.  
+
+- __That__ anyone should care in this heat whose flushed lips he kissed, whose head made damp the pyjama pocket over his heart!
