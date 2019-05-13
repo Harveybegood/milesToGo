@@ -220,4 +220,10 @@
 
 - holding it __at arm's length__ and __by the extreme tip of the corners__ to indicate that I had no designs upon it.  
 
-- __That__ anyone should care in this heat whose flushed lips he kissed, whose head made damp the pyjama pocket over his heart!
+- __That__ anyone should care in this heat whose flushed lips he kissed, whose head made damp the pyjama pocket over his heart!  
+
+- "Madame __expects__ you in the salon!" he cried, needlessly indicating the direction. In this heat every extra gesture was an affront to __the common store of life__.  
+
+- Daisy and Jordan lay upon an enormous couch, like silver idols __weighing down__ their own white dresses against the __singing breeze__ of the fans.  
+
+- "No, he's not," I assured her. "It's a __bona-fide__ deal. I happen to know about it."
