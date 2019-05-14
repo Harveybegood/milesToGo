@@ -226,4 +226,10 @@
 
 - Daisy and Jordan lay upon an enormous couch, like silver idols __weighing down__ their own white dresses against the __singing breeze__ of the fans.  
 
-- "No, he's not," I assured her. "It's a __bona-fide__ deal. I happen to know about it."
+- "No, he's not," I assured her. "It's a __bona-fide__ deal. I happen to know about it."  
+
+- With a reluctant backward glance the __well-disciplined__ child held to her nurse's hand and was pulled out the door, just as Tom came back, __prceding__ four gin and rickeys __that__ __clicked__ full of ice.  
+
+- Our eyes __lifed over__ the rose-beds and the hot lawn and the weedy refuse of the dog-days along-shore. Slowly the white wings of the boat __moved against__ the blue cool __limit of the sky__.  
+
+- _**Ahead lay the scalloped ocean and the abounding blessed isles**_.
