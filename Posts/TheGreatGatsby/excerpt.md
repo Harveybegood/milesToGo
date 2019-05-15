@@ -232,4 +232,18 @@
 
 - Our eyes __lifed over__ the rose-beds and the hot lawn and the weedy refuse of the dog-days along-shore. Slowly the white wings of the boat __moved against__ the blue cool __limit of the sky__.  
 
-- _**Ahead lay the scalloped ocean and the abounding blessed isles**_.
+- _**Ahead lay the scalloped ocean and the abounding blessed isles**_.  
+
+- "There's sport for you," said Tom, nodding, "I'd like to be out there with him for an hour."  
+
+- We had luncheon in the dinning-room, darkened too against the heat, and __drunk down nervous gaiety with the cold ale__.  
+
+- "Don't be morbid," Jordan said. "Life starts all over again when it gets crisp in the fall."  
+
+- Her voice struggled on through the hear, beating against it, moulding its senselessness into forms.  
+
+- Their eyes met, and they stared together at each other, __along in space__. __With an effort__ she glanced down at table.  
+
+- His mouth opened a little, and he looked at Gatsby, and then back at Daisy __as if__ he had just recogised her as someone he knew her a long time ago.  
+
+- His hand, trembling with his efforts at self-controlled, __bore to__ his lips the last of his glass of ale.
