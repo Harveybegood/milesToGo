@@ -246,4 +246,9 @@
 
 - His mouth opened a little, and he looked at Gatsby, and then back at Daisy __as if__ he had just recogised her as someone he knew her a long time ago.  
 
-- His hand, trembling with his efforts at self-controlled, __bore to__ his lips the last of his glass of ale.
+- His hand, trembling with his efforts at self-controlled, __bore to__ his lips the last of his glass of ale.  
+
+- It was full of money - *that was the inexhaustible charm that rose and fell in it, the jingle of it, the cymbal's song of it... High in a white palace the king's daughter, the golden girl*.  
+
+- Daisy looked at Tom frowning, and an indefinable expression, at once definitely unfamiliar and vaguely recognizable,  as if I had only heard it described in words, passed over Gatsby's face. 
+
