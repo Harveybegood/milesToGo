@@ -250,5 +250,19 @@
 
 - It was full of money - *that was the inexhaustible charm that rose and fell in it, the jingle of it, the cymbal's song of it... High in a white palace the king's daughter, the golden girl*.  
 
-- Daisy looked at Tom frowning, and an indefinable expression, at once definitely unfamiliar and vaguely recognizable,  as if I had only heard it described in words, passed over Gatsby's face. 
+- Daisy looked at Tom frowning, and an indefinable expression, at once definitely unfamiliar and vaguely recognizable,  as if I had only heard it described in words, passed over Gatsby's face.  
+
+- Tom threw on both brakes impatiently, and we slid to an abrupt dusty stop under Wilson's sign. After a moment the proprietor emerged from the interior of his establishment and gazed hollow-eyed at the car.  
+
+- The coupe flashed by us with a flurry of dust and the flash of a waving hand.  
+
+- "I just __got wised up__ to something funny the last two days,"  
+
+- The relentless beating heat was beginning to confuse me and I had a bad moment there before I realized that so far his suspicious hadn't __alighted on__ Tom.  
+
+- and It occurred to me that there was no difference between men, in intelligence and race, so profound as the difference between the sick and the well.  
+
+- The locality was always vaguely disquieting, even in the broad glare of afternoon,  
+
+- but I perceived, after a moment, that the other eyes were __regarding__ us less than twenty feet away.
 
