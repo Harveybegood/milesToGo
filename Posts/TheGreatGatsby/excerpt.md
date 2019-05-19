@@ -264,5 +264,7 @@
 
 - The locality was always vaguely disquieting, even in the broad glare of afternoon,  
 
-- but I perceived, after a moment, that the other eyes were __regarding__ us less than twenty feet away.
+- but I perceived, after a moment, that the other eyes were __regarding__ us less than twenty feet away.  
+
+- So engrossed was she that she had no consciousness of being observed, and one emotion after another crept into her face like __objects into a slowly developing picture__.
 
