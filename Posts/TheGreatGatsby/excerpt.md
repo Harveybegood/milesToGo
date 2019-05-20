@@ -266,5 +266,9 @@
 
 - but I perceived, after a moment, that the other eyes were __regarding__ us less than twenty feet away.  
 
-- So engrossed was she that she had no consciousness of being observed, and one emotion after another crept into her face like __objects into a slowly developing picture__.
+- So engrossed was she that she had no consciousness of being observed, and one emotion after another crept into her face like __objects into a slowly developing picture__.  
+
+- I think that he was afraid they would __dart down__ a side street and out of his life forever.  
+
+- But they didn't. And we all took the __less explicable step__ of __engaging__ the parlor of a suite in the Plaza hotel.
 
