@@ -270,5 +270,9 @@
 
 - I think that he was afraid they would __dart down__ a side street and out of his life forever.  
 
-- But they didn't. And we all took the __less explicable step__ of __engaging__ the parlor of a suite in the Plaza hotel.
+- But they didn't. And we all took the __less explicable step__ of __engaging__ the parlor of a suite in the Plaza hotel.  
+
+- The prolonged and tumultuous argument that ended by herding us into that room eludes me, though I have a sharp physical memory that, in the course of it, my underwear kept climbing like a damp snake around my legs and intermittent beads of sweat raced cool across my back.  
+
+- The notion originated with Daisy's suggestion that we hire five bath-rooms and take cold baths, __and then__ assumed more __tangible form__ as "a place to have mint julep".
 
