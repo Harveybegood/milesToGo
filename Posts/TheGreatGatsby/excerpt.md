@@ -276,6 +276,10 @@
 
 - The notion originated with Daisy's suggestion that we hire five bath-rooms and take cold baths, __and then__ assumed more __tangible form__ as "a place to have mint julep".  
 
+- You ought to hear Walter on the subject of you.  
+
+- Walter could have you up on the betting laws too,
+
 - The music had died down as the ceremony began and now a long cheer floated in at the window, __followed by__ intermittent cries of "Yea-ea-ea!" and __finally by__ a burst of jazz as the dancing began.  
 I wanted to get up and slap him on the back. I had one of those renewals of complete faith in him that I had experienced before.
 - ___"What kind of a row are you trying to cause in my house anyhow?"___  
