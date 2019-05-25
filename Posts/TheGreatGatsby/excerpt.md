@@ -286,5 +286,7 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - *__They were out in the open and Gatsby was content__*.  
 
-- But with every word she was drawing further and further into herself, so he gave that up, and only the dead dream __fought on__ as the afternoon slipped away, __trying__ to touch what was no longer tangible, __struggling__ unhappily, undespairingly, towards that lost voice across the room.
+- But with every word she was drawing further and further into herself, so he gave that up, and only the dead dream __fought on__ as the afternoon slipped away, __trying__ to touch what was no longer tangible, __struggling__ unhappily, undespairingly, towards that lost voice across the room.  
+
+- Thirty - the promise of a decade of loneliness, a __thinning list of__ single men to know, a __thinning brief-case__ of enthusiasm, thinning hair. But there was Jordan beside me, who, unlike Daisy, was __too wise ever to__ carry __well-forgotten__ dreams from age to age. 
 
