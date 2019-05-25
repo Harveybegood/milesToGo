@@ -284,5 +284,7 @@
 I wanted to get up and slap him on the back. I had one of those renewals of complete faith in him that I had experienced before.
 - ___"What kind of a row are you trying to cause in my house anyhow?"___  
 
-- *__They were out in the open and Gatsby was content__*.
+- *__They were out in the open and Gatsby was content__*.  
+
+- But with every word she was drawing further and further into herself, so he gave that up, and only the dead dream __fought on__ as the afternoon slipped away, __trying__ to touch what was no longer tangible, __struggling__ unhappily, undespairingly, towards that lost voice across the room.
 
