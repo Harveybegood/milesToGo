@@ -288,5 +288,9 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - But with every word she was drawing further and further into herself, so he gave that up, and only the dead dream __fought on__ as the afternoon slipped away, __trying__ to touch what was no longer tangible, __struggling__ unhappily, undespairingly, towards that lost voice across the room.  
 
-- Thirty - the promise of a decade of loneliness, a __thinning list of__ single men to know, a __thinning brief-case__ of enthusiasm, thinning hair. But there was Jordan beside me, who, unlike Daisy, was __too wise ever to__ carry __well-forgotten__ dreams from age to age. 
+- Thirty - the promise of a decade of loneliness, a __thinning list of__ single men to know, a __thinning brief-case__ of enthusiasm, thinning hair. But there was Jordan beside me, who, unlike Daisy, was __too wise ever to__ carry __well-forgotten__ dreams from age to age.  
+
+- I became aware now of a hollow, wailing __sound which__ issued incessantly from the garage, __a sound which__ as we got out of the coupe and walked toward the door __resolved itself into__ the words "oh, my God!!" uttered over and over in a gasping moan.  
+
+- after staring around the garage with glazed eyes, addressed a __mumbled incoherent remark__ to the policeman.
 
