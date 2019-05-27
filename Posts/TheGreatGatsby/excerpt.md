@@ -296,5 +296,11 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - "You're got to __pull yourself together__," he said with soothing gruffness.  
 
-- Wilson's eyes fell upon Tom, he started up on his tiptoes and then __would have collapsed__ to his knees __had not Tom held__ him upright.
+- Wilson's eyes fell upon Tom, he started up on his tiptoes and then __would have collapsed__ to his knees __had not Tom held__ him upright.  
+
+- Some __dim impulse__ moved the policeman to look suspiciously at Tom.  
+
+- but the policeman caught something __in the tone__ and looked over with truculent eyes.  
+
+- Self-consciously, with his authoritative arms breaking the way, we pushed through __the still growing crowd__, passing a hurried doctor, case in hand, who had been sent for __in wild hope__ half an hour ago. 
 
