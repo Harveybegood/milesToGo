@@ -292,5 +292,9 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - I became aware now of a hollow, wailing __sound which__ issued incessantly from the garage, __a sound which__ as we got out of the coupe and walked toward the door __resolved itself into__ the words "oh, my God!!" uttered over and over in a gasping moan.  
 
-- after staring around the garage with glazed eyes, addressed a __mumbled incoherent remark__ to the policeman.
+- after staring around the garage with glazed eyes, addressed a __mumbled incoherent remark__ to the policeman.  
+
+- "You're got to __pull yourself together__," he said with soothing gruffness.  
+
+- Wilson's eyes fell upon Tom, he started up on his tiptoes and then __would have collapsed__ to his knees __had not Tom held__ him upright.
 
