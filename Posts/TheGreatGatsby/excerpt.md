@@ -302,5 +302,9 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - but the policeman caught something __in the tone__ and looked over with truculent eyes.  
 
-- Self-consciously, with his authoritative arms breaking the way, we pushed through __the still growing crowd__, passing a hurried doctor, case in hand, who had been sent for __in wild hope__ half an hour ago. 
+- Self-consciously, with his authoritative arms breaking the way, we pushed through __the still growing crowd__, passing a hurried doctor, case in hand, who had been sent for __in wild hope__ half an hour ago.  
+
+- and __in his earnestness__ his hand had fallen upon and covered her own.  
+
+- There was an __unmistakable air of natural intimacy about the picture__,
 
