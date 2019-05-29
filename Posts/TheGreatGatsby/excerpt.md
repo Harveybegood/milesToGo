@@ -306,5 +306,17 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - and __in his earnestness__ his hand had fallen upon and covered her own.  
 
-- There was an __unmistakable air of natural intimacy about the picture__,
+- There was an __unmistakable air of natural intimacy about the picture__,  
+
+- We pushed aside curtains that were like pavilions, and felt over innumerable feet of dark wall for electric light switches - once I tumbled with a sort of splash upon the keys of a ghostly piano.  
+
+- Throwing open the __French windows__ of the drawing-room.  
+
+- In various __unrevealed capacities__ he had come in contact with such people, but always with __indiscernible barbed wire between__.  
+
+- He found her __excitingly desirable__.  
+
+- But what gave it __an air of breathless intensity__, was that Daisy lived there - it was __as casual a thing to her as his tent out at camp was to him__.  
+
+- He felt their presence all about the house, pervading the air with the shades and echoes of still vibrant emotions.
 
