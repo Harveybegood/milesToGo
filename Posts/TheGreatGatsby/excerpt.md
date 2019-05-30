@@ -318,5 +318,21 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - But what gave it __an air of breathless intensity__, was that Daisy lived there - it was __as casual a thing to her as his tent out at camp was to him__.  
 
-- He felt their presence all about the house, pervading the air with the shades and echoes of still vibrant emotions.
+- He felt their presence all about the house, pervading the air with the shades and echoes of still vibrant emotions.  
+
+- There was a ripe mystery about it, a hint of bedroom up-stairs more beautiful and cool than other bedroom, of gay and radiant activities taking place through its corridors, and of romances that were not musty and laid away already in lavender but fresh and breathing and __redolent of__ this year's shinning motorcars and of dances whose flowers were scarcely withered.  
+
+- But he knew that he was in Daisy's house __by a colossal accident__.  
+
+- So he __made the most of his time__. He took what he could get, __ravenously and unscrupulously__ - eventually he took Daisy one still October night, took her because he had no real right to touch her hand.  
+
+- He might have despised himself, for he had certainly taken her __under false pretense__. I don't mean that he had __traded on__ his phantom millions,  
+
+- he had no such __facilities__ - he had no comfortable family standing behind him, and he was __liable *at the whim of an impersonal government* to__ be blown anywhere about the world.  
+
+- But he didn't despite himself and it didn't turn out what he was imagined.  
+
+- He had intended, probably, to __take what he could and go__ - but now he found that he had committed himself to the __following of a grail__.  
+
+- and Gatsby was __overwhelmingly aware of__ the youth and mystery of wealth imprisons and preserves, of the freshness of many cloths, and of Daisy, gleaming like silver, safe and proud __above the hot struggles of the poor__.
 
