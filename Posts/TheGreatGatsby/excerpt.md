@@ -334,5 +334,13 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - He had intended, probably, to __take what he could and go__ - but now he found that he had committed himself to the __following of a grail__.  
 
-- and Gatsby was __overwhelmingly aware of__ the youth and mystery of wealth imprisons and preserves, of the freshness of many cloths, and of Daisy, gleaming like silver, safe and proud __above the hot struggles of the poor__.
+- and Gatsby was __overwhelmingly aware of__ the youth and mystery of wealth imprisons and preserves, of the freshness of many cloths, and of Daisy, gleaming like silver, safe and proud __above the hot struggles of the poor__.  
+
+- __What could you make of that__, except to suspect some intensity in his conception of the affair that couldn't be measured?  
+
+- He stayed there a week, walking the streets where their footsteps had __clicked__ together through the November night and revisiting the __out-of-the-way places__ to which they had driven in her white car.  
+
+- The __day-coach__ -he was penniless now - was hot.  
+
+- Usually her voice came over the wire as something fresh and cool, as if a divot from a __green golf-links__ had come sailing in at the office window, but this morning it seemed harsh and dry.
 
