@@ -342,5 +342,11 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - The __day-coach__ -he was penniless now - was hot.  
 
-- Usually her voice came over the wire as something fresh and cool, as if a divot from a __green golf-links__ had come sailing in at the office window, but this morning it seemed harsh and dry.
+- Usually her voice came over the wire as something fresh and cool, as if a divot from a __green golf-links__ had come sailing in at the office window, but this morning it seemed harsh and dry.  
+
+- Then the same __half-knowing__, __half-bewildered__ look came back into his faded eyes.  
+
+- But conceivably Wilson had heard some of these same explanations before, from Myrtle, because he began saying "Oh, my God!" again in a whisper - his __comforter left several explanations in the air__.  
+
+- Someone, kind or curious, took her in his car and drove her __in the wake of__ her sister's body.
 
