@@ -354,5 +354,7 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - This was a __forlorn hope__ -  he was almost sure that Wilson had no friend: he was __not enough of__ him for his wife.  
 
-- He was glad a little later when he noticed a change in the room, a __blue quickening__ by the window, and realized that dawn wasn't far off. About five o'clock it was blue enough outside to __snap off__ the light.
+- He was glad a little later when he noticed a change in the room, a __blue quickening__ by the window, and realized that dawn wasn't far off. About five o'clock it was blue enough outside to __snap off__ the light.  
+
+- The police, __on the strength of__ what he said to Michaelis, that he "had a way of finding out," supposed that he spent that time going from garage to garage thereabout, inquiring for a yellow car.
 
