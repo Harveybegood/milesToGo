@@ -348,5 +348,11 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - But conceivably Wilson had heard some of these same explanations before, from Myrtle, because he began saying "Oh, my God!" again in a whisper - his __comforter left several explanations in the air__.  
 
-- Someone, kind or curious, took her in his car and drove her __in the wake of__ her sister's body.
+- Someone, kind or curious, took her in his car and drove her __in the wake of__ her sister's body.  
+
+- His eyes narrowed and his mouth widened slightly __with the ghost of a superior "Hm!"__.  
+
+- This was a __forlorn hope__ -  he was almost sure that Wilson had no friend: he was __not enough of__ him for his wife.  
+
+- He was glad a little later when he noticed a change in the room, a __blue quickening__ by the window, and realized that dawn wasn't far off. About five o'clock it was blue enough outside to __snap off__ the light.
 
