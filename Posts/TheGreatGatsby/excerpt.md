@@ -356,5 +356,15 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - He was glad a little later when he noticed a change in the room, a __blue quickening__ by the window, and realized that dawn wasn't far off. About five o'clock it was blue enough outside to __snap off__ the light.  
 
-- The police, __on the strength of__ what he said to Michaelis, that he "had a way of finding out," supposed that he spent that time going from garage to garage thereabout, inquiring for a yellow car.
+- The police, __on the strength of__ what he said to Michaelis, that he "had a way of finding out," supposed that he spent that time going from garage to garage thereabout, inquiring for a yellow car.  
+
+- With little ripples that were hardly the shadows of waves, the laden mattress moved irregularly down the pool.  
+
+- A small gust of wind that scarcely corrugated the surface was enough to disturb its accidental course with its accidental burden.  
+
+- The touch of a cluster of leaves revolved it slowly, tracing, like the leg of transit, a thin red circle in the water.  
+
+- He must have looked up at an unfamiliar sky through frightening leaves and shivered as he found what a grotesque thing a rose is and how raw the sunlight was upon the scarcely created grass.  
+
+- A new world, material without being real, where poor ghosts, breathing dreams like air, drifted fortuitously about...like that ashen, fantastic figure gliding towards him through the amorphous trees.
 
