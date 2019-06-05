@@ -374,5 +374,14 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - She showed __a surprising amount of character__ about it too - looked at the coroner with determined eyes under that __corrected brow of hers__,  
 
-- So Wilson was __reduced to__ a man "deranged by grief." __in order that__ the case might remain in its simplest form. And it __rested__ there.
+- So Wilson was __reduced to__ a man "deranged by grief." __in order that__ the case might remain in its simplest form. And it __rested__ there.  
 
+- From the moment I telephoned news of catastrophe to West Egg village, every surmise about him, and every practical question, was __referred to__ me.  
+ 
+- I hardly know where I am when I hear about a thing like this and am completely __knocked down and out__.  
+
+- "Hell of a note, isn't it? Get my wire?"  
+
+- His eyes leaked continuously with excitment,  
+
+- He was __on the point of__ collapse,
