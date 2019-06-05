@@ -366,5 +366,13 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - He must have looked up at an unfamiliar sky through frightening leaves and shivered as he found what a grotesque thing a rose is and how raw the sunlight was upon the scarcely created grass.  
 
-- A new world, material without being real, where poor ghosts, breathing dreams like air, drifted fortuitously about...like that ashen, fantastic figure gliding towards him through the amorphous trees.
+- A new world, material without being real, where poor ghosts, breathing dreams like air, drifted fortuitously about...like that ashen, fantastic figure gliding towards him through the amorphous trees.  
+
+- as he bent over Wilson's body that afternoon, and the adventitous authority of his voice __set the key__ for the newspaper reports next morning.  
+
+- When Michaelis's testimony at the inquest __brough to light__ Wilson's suspicious of his wife I thought the whole of tale would shortly be served up in racy pasquinade.  
+
+- She showed __a surprising amount of character__ about it too - looked at the coroner with determined eyes under that __corrected brow of hers__,  
+
+- So Wilson was __reduced to__ a man "deranged by grief." __in order that__ the case might remain in its simplest form. And it __rested__ there.
 
