@@ -384,4 +384,14 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - His eyes leaked continuously with excitment,  
 
-- He was __on the point of__ collapse,
+- He was __on the point of__ collapse,  
+
+- his mouth ajar, his face flushed slightly, his eyes __leaking isolated and unpunctual tears__.  
+
+- He rose up to his position in the East.  
+
+- I ejaculated unrestrained "Huh!"  
+
+- "What i called up about was a pair of shoes I left there. I wonder if it'd be too much trouble to have the butler send them on. "  
+
+- for he was one of those who used to sneer most bitterly at Gatsby __on the course of__ Gatsby's liquor, and I should have known better than to call him.
