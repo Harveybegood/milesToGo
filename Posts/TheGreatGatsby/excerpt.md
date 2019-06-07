@@ -402,4 +402,10 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - He ate more than __four dollar's worth of__ food in half an hour.  
 
-- I got him to join up the American Legion and he used to __stand high__ there. __Right off__ he did some work for a client of mine up to Albany.
+- I got him to join up the American Legion and he used to __stand high__ there. __Right off__ he did some work for a client of mine up to Albany.  
+
+- Jimmy sent it to me, I think it's a very pretty picture. It __shows up well__.  
+
+- On the last __fly-leaf__ was printed the word SCHEDULE,  
+
+-"I come across this book by accident," said the old man, "__It just shows you__, don't it?"
