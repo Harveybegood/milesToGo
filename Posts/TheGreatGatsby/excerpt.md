@@ -394,4 +394,12 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - "What i called up about was a pair of shoes I left there. I wonder if it'd be too much trouble to have the butler send them on. "  
 
-- for he was one of those who used to sneer most bitterly at Gatsby __on the course of__ Gatsby's liquor, and I should have known better than to call him.
+- for he was one of those who used to sneer most bitterly at Gatsby __on the course of__ Gatsby's liquor, and I should have known better than to call him.  
+
+- The door that I pushed open, __on the advice of__ an elevator boy, was marked "The Swastika Holding Company"  
+
+- He was so hard up he had to keep up wearing his uniform because he couldn't buy some regular clothes.  
+
+- He ate more than __four dollar's worth of__ food in half an hour.  
+
+- I got him to join up the American Legion and he used to __stand high__ there. __Right off__ he did some work for a client of mine up to Albany.
