@@ -420,4 +420,6 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - but the thrilling returning trains of my youth, and the street lamps and sleigh bells in the frosty dark and the shadows of holly wreaths thrown by lighted windows on the snow.  
 
-- a little complacent from growing up in the Carraway house in a city where dwelling are still called through decades by a family's name.
+- a little complacent from growing up in the Carraway house in a city where dwelling are still called through decades by a family's name.  
+
+- Even when the East excited me most, even when I was most keenly aware of its superiority to the bored, sprawling, swollen towns beyond the Ohio, with their __interminable inquisitions__ which spared only the children and the very old - even then it had always for me a __quality of distortion__. West Egg, especially, still __figures__ in my more fantastic dreams.
