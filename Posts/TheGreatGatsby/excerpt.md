@@ -408,4 +408,16 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - On the last __fly-leaf__ was printed the word SCHEDULE,  
 
--"I come across this book by accident," said the old man, "__It just shows you__, don't it?"
+-"I come across this book by accident," said the old man, "__It just shows you__, don't it?"  
+
+- Those who went farther than Chicago would gather in the old dim Union Station at six o'clock of a December evening, with a few Chicago friends, already caught up into their own holiday gaieties, to big them a hasty good-by.  
+
+- I remember the fur coats of girls returning from Miss __This-or-that's__ and the chatter of frozen breath and the hands waving overhead as we caught sight of old acquintances, and __the matchings of invitations__:  
+
+- And last the murky yellow cars of the Chicago, Milwaukee and St Paul railroad looking cheerful as Christmas itself on the tracks beside the gate.  
+
+- unutterably aware of our identity with this country for one strange hour, before we melted indistinguishably into it again.  
+
+- but the thrilling returning trains of my youth, and the street lamps and sleigh bells in the frosty dark and the shadows of holly wreaths thrown by lighted windows on the snow.  
+
+- a little complacent from growing up in the Carraway house in a city where dwelling are still called through decades by a family's name.
