@@ -422,4 +422,16 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - a little complacent from growing up in the Carraway house in a city where dwelling are still called through decades by a family's name.  
 
-- Even when the East excited me most, even when I was most keenly aware of its superiority to the bored, sprawling, swollen towns beyond the Ohio, with their __interminable inquisitions__ which spared only the children and the very old - even then it had always for me a __quality of distortion__. West Egg, especially, still __figures__ in my more fantastic dreams.
+- Even when the East excited me most, even when I was most keenly aware of its superiority to the bored, sprawling, swollen towns beyond the Ohio, with their __interminable inquisitions__ which spared only the children and the very old - even then it had always for me a __quality of distortion__. West Egg, especially, still __figures__ in my more fantastic dreams.  
+
+- "He came to the door when we were getting ready to leave, and when I __sent down word__ that we weren't in he tried to force his way upstairs."  
+
+- He broke off defiantly. "What if I did tell him? That fellow __had it coming to him__. He threw dust into your eyes just like he did in Daisy's, but he was a tough one."  
+
+- but I saw that wht he had done was, to him, __entirely justified__.  
+
+- After Gatsby's death the East was haunted for me like that, __distorted__ beyond my eyes' power of correctness.  
+
+- There was one thing to be done before I left, an awkward, unpleasant thing that perhaps __had better have been let alone__.  
+
+- But I wanted to leave things in order and __not just trust__ that obliging and indifferent sea to __sweep my refuse away__.
