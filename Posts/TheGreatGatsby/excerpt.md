@@ -440,4 +440,8 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - One night I did hear a __material car__ there,  
 
-- Probably it was some final guest who had been away __at the ends of the earth__ and didn't know that the party was over.
+- Probably it was some final guest who had been away __at the ends of the earth__ and didn't know that the party was over.  
+
+- for a transitory enchanted moment man must have held his breath in the presence of this continent, compelled into an aesthetic contemplation he neither understood nor desired, face to face for the last time in history with something commensurate to his capacity for wonder.  
+
+- He did not know that it was already behind him, somewhere back in that vast obscurity beyond the city, where the dark fields of the republic __rolled on__ under the night.
