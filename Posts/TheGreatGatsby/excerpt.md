@@ -434,4 +434,10 @@ I wanted to get up and slap him on the back. I had one of those renewals of comp
 
 - There was one thing to be done before I left, an awkward, unpleasant thing that perhaps __had better have been let alone__.  
 
-- But I wanted to leave things in order and __not just trust__ that obliging and indifferent sea to __sweep my refuse away__.
+- But I wanted to leave things in order and __not just trust__ that obliging and indifferent sea to __sweep my refuse away__.  
+
+- One of the taxi driver in the village *never* __took a fare__ past the entrance gate *without* stopping for a minute and pointing inside;  
+
+- One night I did hear a __material car__ there,  
+
+- Probably it was some final guest who had been away __at the ends of the earth__ and didn't know that the party was over.
