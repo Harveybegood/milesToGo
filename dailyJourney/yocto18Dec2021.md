@@ -1,9 +1,9 @@
-repo init -u https://source.codeaurora.org/external/imx/imx-manifest  -b imx-linux-zeus -m imx-5.4.70-2.3.5.xml
-repo sync
-DISTRO=fsl-imx-xwayland MACHINE=imx8mnevk source imx-setup-release.sh -b build-xwayland
-bitbake imx-image-multimedia
-
-error message: 
+repo init -u https://source.codeaurora.org/external/imx/imx-manifest  -b imx-linux-zeus -m imx-5.4.70-2.3.5.xml  
+repo sync  
+DISTRO=fsl-imx-xwayland MACHINE=imx8mnevk source imx-setup-release.sh -b build-xwayland  
+bitbake imx-image-multimedia  
+  
+error message:   
 
 WARNING: gnu-config-native-20190501+gitAUTOINC+b98424c249-r0 do_fetch: Failed to fetch URL git://git.savannah.gnu.org/config.git, attempting MIRRORS if available
 
